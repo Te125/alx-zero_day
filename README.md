@@ -1,1 +1,1 @@
-joy software engineer
+joy is a software engineer
